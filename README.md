@@ -5,8 +5,9 @@
 
 🙏🏻🙏🏻 🇮🇳 W̊e̊l̊c̊o̊m̊e̊ b̊ẙ T̊e̊c̊h̊n̊o̊ I̊n̊d̊i̊å 🇮🇳 🙏🏻🙏🏻
 
-☯︎BOT~ @Httpcustomkey_bot
-☯︎ Telegram GROUP~ @rktechnoindians
+☯︎ Telegram~ [@rktechnoindians](https://t.me/rktechnoindians)
+☯︎Owner~ [@RK_TECHNO_INDIA](https://t.me/RK_TECHNO_INDIA)
+
 
 # Installation 
 
